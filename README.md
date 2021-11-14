@@ -8,7 +8,7 @@ Youtube link: https://www.youtube.com/watch?v=56yBD6ern8k
 
 Contributors: Joshua, Yi Jie, Xiao Ming, Yu Tian
 
-Github accounts: (to be updated later)
+Github accounts: @Yijie-Ding (to be updated later)
 
 ---
 
